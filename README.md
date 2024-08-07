@@ -1,0 +1,1 @@
+# beitaqa25---generador-de-dominios
